@@ -1,0 +1,2 @@
+- Fremdsprachen-Lernern, Professionals und Unternehmens-Gründern aus aller Welt, in Deutschland und insbesondere in Berlin sprachlich ein Bein auf den Boden zu bekommen.
+- Hochschulen, Unternehmen, Verwaltungen und Organisationen ihre Studenten bzw. Mitarbeiter für Tätigkeiten in Deutschland oder im Ausland sprachlich und kulturell fit zu machen und ihre Sprachtrainings effizienter zu gestalten.
